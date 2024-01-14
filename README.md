@@ -1,4 +1,4 @@
-### Hi!! Welcome to my GitHub👋
+### Um pouco mais sobre o meu perfil
 
 <div>
    <a href="https://github.com/amandaalvees">
